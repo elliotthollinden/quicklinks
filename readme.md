@@ -1,1 +1,1 @@
-https://wav-vbulletin-abstract-notifications.trycloudflare.com
+https://organized-garcia-mailman-net.trycloudflare.com
